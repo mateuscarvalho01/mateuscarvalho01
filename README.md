@@ -22,8 +22,8 @@ Em breve.
 
 ## 🌐 Contato
 
-LinkedIn: linkedin.com.br/mateuscarvalho1310
+LinkedIn: [https://linkedin.com.br/mateuscarvalho1310](https://linkedin.com.br/mateuscarvalho1310)
 
-Portfólio: mateuscarvalho.com.br
+Portfólio: [https://mateuscarvalho.com.br](https://mateuscarvalho.com.br)
 
-Telefone: (21) 97479-9322
+WhatsApp: (21) 97479-9322
